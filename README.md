@@ -6,4 +6,4 @@ Astrolacuna, Coming sooner
 -   **Twitter:** [@Astrolacuna](https://twitter.com/Astrolacuna) 
 -   **Website:** almost there.
 -   **YouTube:** [Astrolacuna](https://www.youtube.com/@Astrolacuna)
--   **Instagram:**[Astrolacuna](https://www.instagram.com/astrolacuna_)
+-   **Instagram:** [Astrolacuna](https://www.instagram.com/astrolacuna_)
